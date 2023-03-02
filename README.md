@@ -9,4 +9,4 @@
 # How to Use the Bot
 • Extra Bonus on How to Host your Bot for Free 24/7.<br>
 • Make sure to watch the full tutorial on how to use the bot step by step.<br>
-  > https://youtu.be/NdXnE1Adk1M
+  > https://youtu.be/4cyyVK1kV5M
